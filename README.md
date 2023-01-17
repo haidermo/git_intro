@@ -1,1 +1,2 @@
 Mohammad Haider
+haidermo@oregonstate.edu
